@@ -1,7 +1,7 @@
-
+indonesia
 
 file Map 
-#indonesia
+
 CARA BUKA MAP Palworld BERSIH Terbaru 2024
 
 
